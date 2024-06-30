@@ -1,1 +1,1 @@
-# rsschool-cv2024
+https://LevanKuprava.github.io/rsschool-cv/cv
